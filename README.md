@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ethicalabhishek
+- 👋 Hi, I’m Abhishek Kumar
 - 👀 I’m interested in reading books
 - 🌱 I’m currently learning English literature
 - 💞️ I’m looking to collaborate on 👽👽👽👽
