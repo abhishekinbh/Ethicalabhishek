@@ -2,7 +2,7 @@
 - 👀 I’m interested in reading books
 - 🌱 I’m currently learning English literature
 - 💞️ I’m looking to collaborate on 👽👽👽👽
-- 📫 How to reach me anything@abhishek.icu
+- 📫 How to reach me anything@abhishek.io.in
 
 <!---
 Ethicalabhishek/Ethicalabhishek is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
